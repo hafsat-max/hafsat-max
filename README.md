@@ -8,7 +8,7 @@ I am an experienced frontend developer with 4+ years of experience working with 
 
 - 😊 Pronouns: She/Her.
 - 💼 Job interests: Software Engineer, Frontend Engineer (Mid/ Senior level).
-- 📫 You can [view my resume]([https://docs.google.com/document/d/1iuc2FYjJwcmi6HAC7WB4hzVWEPoRnwwqzeuU-faAeNU](https://docs.google.com/document/d/1iuc2FYjJwcmi6HAC7WB4hzVWEPoRnwwqzeuU-faAeNU/edit) and contact me by emailing mailtohafsahbusari69@gmail.com.
+- 📫 You can [view my resume]([https://docs.google.com/document/d/1iuc2FYjJwcmi6HAC7WB4hzVWEPoRnwwqzeuU-faAeNU](https://docs.google.com/document/d/1iuc2FYjJwcmi6HAC7WB4hzVWEPoRnwwqzeuU-faAeNU/edit) and contact me by emailing mailtoabiodunabusari@gmail.com.
 
 ---
 
